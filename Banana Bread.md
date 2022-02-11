@@ -6,8 +6,6 @@
 
 ###    Ingredients
 
-- 
-
 - 2 cups white, spelt, or oat flour (240g)
 
 - 1 tsp baking soda
