@@ -1,5 +1,7 @@
 # Tuna, caper & chilli spaghetti
 
+![UK_SpaghettiTunaCapers_600x600](https://user-images.githubusercontent.com/99350621/153630517-5b2fb26b-fbf8-4aa2-88d0-9a0c82ffb394.jpg)
+
 - 1 tbsp olive oil
 - 1 garlic clove, sliced
 - 1 red chilli, deseeded and finely chopped, plus extra to serve (optional)
